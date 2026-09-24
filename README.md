@@ -19,7 +19,7 @@ Engineering undergraduate passionate about building software solutions, AI-power
 
 ---
 
-## 💼 Experience
+## 💼 Internship Experience
 
 ### 🏢 Summer Intern — Airports Authority of India
 
